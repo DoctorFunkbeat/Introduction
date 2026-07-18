@@ -7,7 +7,6 @@
 ![D6739326-0973-4B3D-B8C8-9B7CA6C47BE3](https://github.com/user-attachments/assets/391bd43c-9b9e-44cf-ab2c-e87a86c1a391)
 
 
-𝐼 𝑙𝑜𝑣𝑒 [ℎ𝑒𝑟](https://github.com/rottenmaiden) 𝑎𝑙𝑙 𝑤𝑎𝑦 𝑡𝑜 𝑡ℎ𝑒 𝑠𝑡𝑎𝑟𝑠 𝑎𝑛𝑑 𝑏𝑎𝑐𝑘. 𝐼𝑙𝑦𝑠𝑚 <𝟑 .ᐟ
 
 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31r4eu7hkv4ingk57x7aujwbcmfi&cover_image=true&theme=natemoo-re&show_offline=true&background_color=121212&interchange=true&profanity=false&bar_color=e38564&bar_color_cover=true)](https://github.com/kittinan/spotify-github-profile)
