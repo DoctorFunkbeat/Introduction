@@ -30,9 +30,10 @@
 
 ｡ﾟ•┈୨♡୧┈• ｡ﾟ
 
-☆ 𝐻𝑒𝑙𝑙𝑜! 𝑐𝑎𝑙𝑙 𝑚𝑒 ${{color{.
+☆ 𝐻𝑒𝑙𝑙𝑜! 𝑐𝑎𝑙𝑙 𝑚𝑒 ${{\color{B0A052}\normalsize{\textsf{𝐿𝑒𝑎𝑑𝑖𝑎}}}}$ ٫ ${{\color{2B4321}\normalsize{\textsf{𝐹𝑢𝑛𝑘𝑏𝑒𝑎𝑡}}}}$ ٫ ${{\color{5E6672}\normalsize{\textsf{𝑆𝑎𝑠𝑎𝑘𝑢𝑟𝑒}}}}$ ٫ ${{\color{9B712C}\normalsize{\textsf{𝐺𝑒𝑛𝑦𝑎𝑠}}}}$ ٫ ${{\color{BB727D}\normalsize{\textsf{𝐻𝑖𝑚𝑒}}}}$ 𝑂𝑟 ${{\color{72A3BB}\normalsize{\textsf{𝑃𝑢𝑝𝑝𝑦 𝑃𝑖𝑙𝑙}}}}$ .
 
-☆ 𝐻𝑒/𝑡ℎ𝑒𝑦/𝑝𝑢𝑝/𝑠𝑡𝑎𝑟/𝑐𝑎𝑡/𝑝𝑎𝑤
+
+☆ 𝐻𝑒 | 𝑇ℎ𝑒𝑦 | 𝐼𝑡 | 𝑥𝑒𝑛𝑜𝑠
 
 ☆ 𝑀𝑦 𝑏𝑖𝑟𝑡ℎ𝑑𝑎𝑦 𝑖𝑠 07𝑡ℎ 𝑓𝑒𝑏𝑟𝑢𝑎𝑟𝑦.
 
