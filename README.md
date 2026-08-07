@@ -40,7 +40,7 @@
 ☆ 𝑇𝑟𝑎𝑛𝑠𝑚𝑎𝑠𝑐٫ 𝑝𝑜𝑙𝑦𝑎𝑚𝑜𝑟𝑜𝑢𝑠٫ 𝑝𝑜𝑙𝑦𝑟𝑜𝑚𝑎𝑡𝑖𝑐٫ 𝑎𝑔𝑒𝑛𝑑𝑒𝑟٫ 𝑎𝑐𝑒٫ 𝑎𝑒𝑔𝑜𝑠𝑒𝑥𝑢𝑎𝑙٫ 𝑥𝑒𝑛𝑜𝑔𝑒𝑛𝑑𝑒𝑟 𝑎𝑛𝑑 𝑑𝑒𝑚𝑖𝑟𝑜𝑚𝑎𝑡𝑖𝑐.
 
 
-☆ 𝐴𝑈𝑑ℎ𝑑 ٫ 𝑃𝑇𝑆𝐷 ٫ 𝑙𝑜𝑤 𝑖𝑟𝑜𝑛/𝐴𝑛𝑒𝑚𝑖𝑎 ٫ 𝑠𝑐ℎ𝑖𝑧𝑜𝑝ℎ𝑟𝑒𝑛𝑖𝑎 + 𝑀𝑜𝑟𝑒.
+☆ ${{\color{DDB44D}\normalsize{\textsf{𝐴𝑈𝑑ℎ𝑑}}}}$ ٫ ${{\color{572A26}\normalsize{\textsf{𝑃𝑇𝑆𝐷}}}}$ ٫ ${{\color{9D9D9D}\normalsize{\textsf{𝑙𝑜𝑤 𝑖𝑟𝑜𝑛/𝐴𝑛𝑒𝑚𝑖𝑎}}}}$ ٫ ${{\color{1C2639}\normalsize{\textsf{𝑠𝑐ℎ𝑖𝑧𝑜𝑝ℎ𝑟𝑒𝑛𝑖𝑎}}}}$ + 𝑀𝑜𝑟𝑒.
 
 
 ★ ${{\color{1F6D31}\normalsize{\textsf{𝑃𝑜𝑟𝑡𝑢𝑔𝑢𝑒𝑠𝑒}}}}$ ٫ ${{\color{BE6777}\normalsize{\textsf{𝑖𝑡𝑎𝑙𝑖𝑎𝑛}}}}$ 𝑎𝑛𝑑 ${{\color{209547}\normalsize{\textsf{𝑏𝑟𝑎𝑧𝑖𝑙𝑙𝑖𝑎𝑛.}}}}$
