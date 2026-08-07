@@ -37,7 +37,7 @@
 
 ☆ 𝑀𝑦 𝑏𝑖𝑟𝑡ℎ𝑑𝑎𝑦 𝑖𝑠 07𝑡ℎ 𝑓𝑒𝑏𝑟𝑢𝑎𝑟𝑦.
 
-☆ ${{\color{76B1B8}\normalsize{\textsf{𝑇𝑟𝑎𝑛𝑠𝑚𝑎𝑠𝑐}}}}$٫ 𝑝𝑜𝑙𝑦𝑎𝑚𝑜𝑟𝑜𝑢𝑠٫ 𝑝𝑜𝑙𝑦𝑟𝑜𝑚𝑎𝑡𝑖𝑐٫ 𝑎𝑔𝑒𝑛𝑑𝑒𝑟٫ 𝑎𝑐𝑒٫ 𝑎𝑒𝑔𝑜𝑠𝑒𝑥𝑢𝑎𝑙٫ 𝑥𝑒𝑛𝑜𝑔𝑒𝑛𝑑𝑒𝑟 𝑎𝑛𝑑 𝑑𝑒𝑚𝑖𝑟𝑜𝑚𝑎𝑡𝑖𝑐.
+☆ ${{\color{76B1B8}\normalsize{\textsf{𝑇𝑟𝑎𝑛𝑠𝑚𝑎𝑠𝑐}}}}$٫ ${{\color{1E2162}\normalsize{\textsf{𝑝𝑜𝑙𝑦𝑎𝑚𝑜𝑟𝑜𝑢𝑠}}}}$٫ ${{\color{9F1A87}\normalsize{\textsf{𝑝𝑜𝑙𝑦𝑟𝑜𝑚𝑎𝑡𝑖𝑐}}}}$٫ 𝑎𝑔𝑒𝑛𝑑𝑒𝑟٫ 𝑎𝑐𝑒٫ 𝑎𝑒𝑔𝑜𝑠𝑒𝑥𝑢𝑎𝑙٫ 𝑥𝑒𝑛𝑜𝑔𝑒𝑛𝑑𝑒𝑟 𝑎𝑛𝑑 𝑑𝑒𝑚𝑖𝑟𝑜𝑚𝑎𝑡𝑖𝑐.
 
 
 ☆ ${{\color{DDB44D}\normalsize{\textsf{𝐴𝑈𝑑ℎ𝑑}}}}$ ٫ ${{\color{572A26}\normalsize{\textsf{𝑃𝑇𝑆𝐷}}}}$ ٫ ${{\color{9D9D9D}\normalsize{\textsf{𝑙𝑜𝑤 𝑖𝑟𝑜𝑛/𝐴𝑛𝑒𝑚𝑖𝑎}}}}$ ٫ ${{\color{1C2639}\normalsize{\textsf{𝑠𝑐ℎ𝑖𝑧𝑜𝑝ℎ𝑟𝑒𝑛𝑖𝑎}}}}$ + 𝑀𝑜𝑟𝑒.
