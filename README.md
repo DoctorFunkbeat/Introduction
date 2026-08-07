@@ -43,12 +43,12 @@
 ☆ 𝐴𝑈𝑑ℎ𝑑 ٫ 𝑃𝑇𝑆𝐷 ٫ 𝑙𝑜𝑤 𝑖𝑟𝑜𝑛/𝐴𝑛𝑒𝑚𝑖𝑎 ٫ 𝑠𝑐ℎ𝑖𝑧𝑜𝑝ℎ𝑟𝑒𝑛𝑖𝑎 + 𝑀𝑜𝑟𝑒.
 
 
-★ ${{\color{1F6D31}\normalsize{\textsf{𝑃𝑜𝑟𝑡𝑢𝑔𝑢𝑒𝑠𝑒}}}}$ ٫ 𝑖𝑡𝑎𝑙𝑖𝑎𝑛 𝑎𝑛𝑑 𝑏𝑟𝑎𝑧𝑖𝑙𝑙𝑖𝑎𝑛.
+★ ${{\color{1F6D31}\normalsize{\textsf{𝑃𝑜𝑟𝑡𝑢𝑔𝑢𝑒𝑠𝑒}}}}$ ٫ ${{\color{BE6777}\normalsize{\textsf{𝑖𝑡𝑎𝑙𝑖𝑎𝑛}}}}$ 𝑎𝑛𝑑 ${{\color{209547}\normalsize{\textsf{𝑏𝑟𝑎𝑧𝑖𝑙𝑙𝑖𝑎𝑛.}}}}$
 
-★ 𝑃𝑇-𝐵𝑅/𝐸𝑁𝐺
+★ ${{\color{209547}\normalsize{\textsf{𝑃𝑇-𝐵𝑅/𝐸𝑁𝐺}}}}$
 
 
-★ ${{\color{BB727D}\normalsize{\textsf{𝑀𝑒𝑖𝑘𝑎 ℎ𝑖𝑚𝑒}}}}$ 𝑎𝑛𝑑 ${{\color{DED2D6}\normalsize{\textsf{𝑁𝑖𝑔ℎ𝑡𝑐𝑜𝑟𝑑 𝑀𝑖𝑘𝑢 𝑓𝑖𝑐𝑡𝑘𝑖𝑛.}}}}$ (𝑑𝑜𝑢𝑏𝑙𝑒𝑠 𝐼𝑊𝐸𝐶)
+★ ${{\color{BB727D}\normalsize{\textsf{𝑀𝑒𝑖𝑘𝑎 ℎ𝑖𝑚𝑒}}}}$ 𝑎𝑛𝑑 ${{\color{DED2D6}\normalsize{\textsf{𝑁𝑖𝑔ℎ𝑡𝑐𝑜𝑟𝑑 𝑀𝑖𝑘𝑢 𝑓𝑖𝑐𝑡𝑘𝑖𝑛.}}}}$ ${{\color{8C0019}\normalsize{\textsf{(𝑑𝑜𝑢𝑏𝑙𝑒𝑠 𝐼𝑊𝐸𝐶)}}}}$
 
 
 --------------------------------------
