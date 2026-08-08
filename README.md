@@ -138,7 +138,7 @@
 <img width="20" height="20" alt="IMG_4609" src="https://github.com/user-attachments/assets/fc8fb44b-cf96-40fd-8079-ef2014f4e568" />
 
 
-[ℎ𝑒𝑟 𝑔𝑖𝑡ℎ𝑢𝑏!](https://github.com/angelmizu)
+[ℎ𝑒𝑟 𝑔𝑖𝑡ℎ𝑢𝑏!](https://github.com/puppyena)
 
 -✧ 𝑌𝑢𝑘𝑖. 𝐻𝑒𝑦𝑜!! 𝑦𝑜𝑢'𝑟𝑒 𝑟𝑒𝑎𝑙𝑙𝑦 𝑘𝑖𝑛𝑑 𝑎𝑛𝑑 𝑓𝑢𝑛𝑛𝑦 𝑝𝑙𝑢𝑠 𝑠𝑜𝑚𝑒𝑜𝑛𝑒 𝑖 𝑎𝑝𝑝𝑟𝑒𝑐𝑖𝑎𝑡𝑒 𝑎𝑙𝑜𝑡 𝑖𝑛 𝑚𝑦 𝑙𝑖𝑓𝑒٫ 𝑡ℎ𝑎𝑛𝑘 𝑦𝑜𝑢 𝑓𝑜𝑟 𝑎𝑐𝑒𝑒𝑝𝑡𝑖𝑛𝑔 𝑚𝑒 𝑏𝑎𝑐𝑘 (23.06) 𝑖'𝑚 𝑠𝑜 𝑔𝑙𝑎𝑑 𝑤𝑒'𝑟𝑒 𝑓𝑟𝑖𝑒𝑛𝑑𝑠 𝑎𝑔𝑎𝑖𝑛 𝑎𝑛𝑑 𝑖 ℎ𝑜𝑝𝑒 𝑤𝑒 𝑐𝑎𝑛 𝑏𝑒 𝑓𝑟𝑖𝑒𝑛𝑑𝑠 𝑓𝑜𝑟𝑒𝑣𝑒𝑟!! 𝑇ℎ𝑎𝑛𝑘 𝑦𝑜𝑢 𝑓𝑜𝑟 𝑏𝑒𝑖𝑛𝑔 𝑚𝑦 𝑐𝑙𝑜𝑠𝑒 𝑓𝑟𝑖𝑒𝑛𝑑 𝑎𝑛𝑑 𝑏𝑒𝑖𝑛𝑔 ℎ𝑒𝑟𝑒 𝑓𝑜𝑟 𝑚𝑒 𝑎𝑓𝑡𝑒𝑟 𝑠𝑜𝑚𝑒𝑜𝑛𝑒 𝑖𝑚𝑝𝑜𝑟𝑡𝑎𝑛𝑡 𝑙𝑒𝑓𝑡 𝑚𝑒. 𝑌𝑜𝑢 𝑚𝑒𝑎𝑛 𝑎𝑙𝑜𝑡 𝑡𝑜 𝑚𝑒. 𝑇ℎ𝑎𝑛𝑘 𝑦𝑜𝑢 𝑠𝑜 𝑚𝑢𝑐ℎ 𝑌𝑢𝑘𝑖. 𝑖 𝑙𝑜𝑣𝑒 𝑦𝑜𝑢
 <img width="20" height="20" alt="v9sxvn" src="https://github.com/user-attachments/assets/8e31d748-2cc8-4edf-ab48-1db85e83afde" />
