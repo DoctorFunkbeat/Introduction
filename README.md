@@ -1,7 +1,7 @@
 <img width="689" height="559" alt="Untitled263_20251213192708" src="https://github.com/user-attachments/assets/e0c5f5a5-4a1a-4fa5-a44f-10a64be169d6" />
 
 
-
+[𝐴𝑙𝑡 𝑖𝑛𝑡𝑟𝑜𝑑𝑢𝑐𝑡𝑖𝑜𝑛!](https://github.com/Leadprincess/Introduction.)
 
 
 ![D6739326-0973-4B3D-B8C8-9B7CA6C47BE3](https://github.com/user-attachments/assets/391bd43c-9b9e-44cf-ab2c-e87a86c1a391)
@@ -153,6 +153,14 @@
 
 
 [𝐻𝑒𝑟 𝑔𝑖𝑡ℎ𝑢𝑏 ℎ𝑒ℎ𝑒 !!](https://github.com/sinfulribbons)
+
+
+-✧ 𝑀𝑎𝑥. 𝐻𝑒𝑙𝑙𝑜!!! 𝑦𝑜𝑢'𝑟𝑒 𝑎𝑛 𝑒𝑥𝑡𝑟𝑒𝑚𝑒𝑙𝑦 𝑎𝑚𝑎𝑧𝑖𝑛𝑔 𝑓𝑟𝑖𝑒𝑛𝑑 𝑡𝑜 𝑏𝑒 𝑎𝑟𝑜𝑢𝑛𝑑 𝑎𝑛𝑑 𝑠𝑢𝑐ℎ. 𝐼 𝑙𝑜𝑣𝑟 ℎ𝑎𝑛𝑔𝑖𝑛𝑔 𝑜𝑢𝑡 𝑤𝑖𝑡ℎ 𝑦𝑜𝑢 𝑎𝑛𝑑 𝑂𝑙𝑖𝑣𝑒𝑟 𝑑𝑢𝑟𝑖𝑛𝑔 𝑙𝑢𝑛𝑐ℎ 𝑏𝑟𝑒𝑎𝑘! 𝑦𝑎𝑙𝑙 𝑎𝑟𝑒 𝑠𝑜 𝑓𝑢𝑛 𝑡𝑜 𝑏𝑒 𝑤𝑖𝑡ℎ! 𝑖'𝑚 𝑠𝑜 𝑔𝑙𝑎𝑑 𝑤𝑒 𝑠𝑡𝑎𝑟𝑡𝑒𝑑 𝑠𝑝𝑒𝑎𝑘𝑖𝑛𝑔 𝑚𝑜𝑟𝑒 𝑡𝑜𝑜.. 𝑆𝑡𝑎𝑦 𝑠𝑎𝑓𝑒 𝑎𝑛𝑑 𝑎𝑚𝑎𝑧𝑖𝑛𝑔! 𝑦𝑜𝑢'𝑟𝑒 𝑝𝑒𝑎𝑘 𝑡𝑤𝑖𝑛! <img width="20" height="20" alt="53dd8866" src="https://github.com/user-attachments/assets/58e81f9e-3fd4-4880-8388-df5eb0918295" />
+
+
+[𝐻𝑖𝑠 𝑔𝑖𝑡ℎ𝑢𝑏!](https://github.com/WingedMax)
+
+-✧ 𝑂𝑙𝑖𝑣𝑒𝑟.
 
 
  𝐼'𝑚 𝑠𝑜𝑟𝑟𝑦 𝑖𝑓 𝑦𝑜𝑢 𝑑𝑖𝑑𝑛'𝑡 𝑔𝑒𝑡 𝑚𝑒𝑛𝑡𝑖𝑜𝑛𝑒𝑑. 𝑅𝑒𝑚𝑒𝑚𝑏𝑒𝑟 𝑡ℎ𝑎𝑡 𝑖 𝑙𝑜𝑣𝑒 𝑎𝑙𝑙 𝑚𝑦 𝑓𝑟𝑖𝑒𝑛𝑑𝑠 𝑒𝑞𝑢𝑎𝑙𝑙𝑦. ^_^
