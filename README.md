@@ -37,6 +37,8 @@
 
 ☆ 𝑀𝑦 𝑏𝑖𝑟𝑡ℎ𝑑𝑎𝑦 𝑖𝑠 07𝑡ℎ 𝑓𝑒𝑏𝑟𝑢𝑎𝑟𝑦.
 
+☆ 𝐼𝑁𝐹𝑃-𝑇 
+
 ☆ ${{\color{76B1B8}\normalsize{\textsf{𝑇𝑟𝑎𝑛𝑠𝑚𝑎𝑠𝑐}}}}$٫ ${{\color{1E2162}\normalsize{\textsf{𝑝𝑜𝑙𝑦𝑎𝑚𝑜𝑟𝑜𝑢𝑠}}}}$٫ ${{\color{9F1A87}\normalsize{\textsf{𝑝𝑜𝑙𝑦𝑟𝑜𝑚𝑎𝑡𝑖𝑐}}}}$٫ ${{\color{313431}\normalsize{\textsf{𝑎𝑔𝑒𝑛𝑑𝑒𝑟}}}}$٫ ${{\color{4B225E}\normalsize{\textsf{𝑎𝑐𝑒}}}}$٫ ${{\color{535156}\normalsize{\textsf{𝑎𝑒𝑔𝑜𝑠𝑒𝑥𝑢𝑎𝑙}}}}$٫ 𝑥𝑒𝑛𝑜𝑔𝑒𝑛𝑑𝑒𝑟 𝑎𝑛𝑑 𝑑𝑒𝑚𝑖𝑟𝑜𝑚𝑎𝑡𝑖𝑐.
 
 
