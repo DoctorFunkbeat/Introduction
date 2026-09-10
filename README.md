@@ -30,7 +30,7 @@
 
 ｡ﾟ•┈୨♡୧┈• ｡ﾟ
 
-☆ 𝐻𝑒𝑙𝑙𝑜! 𝑐𝑎𝑙𝑙 𝑚𝑒 ${{\color{B0A052}\normalsize{\textsf{𝐿𝑒𝑎𝑑𝑖𝑎}}}}$ ٫ ${{\color{2B4321}\normalsize{\textsf{𝐹𝑢𝑛𝑘𝑏𝑒𝑎𝑡}}}}$ ٫ ${{\color{5E6672}\normalsize{\textsf{𝑆𝑎𝑠𝑎𝑘𝑢𝑟𝑒}}}}$ ٫ ${{\color{9B712C}\normalsize{\textsf{𝐺𝑒𝑛𝑦𝑎𝑠}}}}$ ٫ ${{\color{BB727D}\normalsize{\textsf{𝐻𝑖𝑚𝑒}}}}$ 𝑂𝑟 ${{\color{72A3BB}\normalsize{\textsf{𝑃𝑢𝑝𝑝𝑦 𝑃𝑖𝑙𝑙}}}}$ .
+☆ 𝐻𝑒𝑙𝑙𝑜! 𝑐𝑎𝑙𝑙 𝑚𝑒 ${{\color{B0A052}\normalsize{\textsf{𝐋𝐞𝐚𝐝𝐢𝐚}}}}$ ٫ ${{\color{2B4321}\normalsize{\textsf{𝐅𝐮𝐧𝐤𝐛𝐞𝐚𝐭}}}}$ ٫ ${{\color{9796DA}\normalsize{\textsf{𝐌𝐢𝐤ø𝐭ø}}}}$٫ ${{\color{5E6672}\normalsize{\textsf{𝐒𝐚𝐬𝐚𝐤𝐮𝐫𝐞}}}}$ ٫ ${{\color{9B712C}\normalsize{\textsf{𝐆𝐞𝐧𝐲𝐚𝐬}}}}$ ٫ ${{\color{BB727D}\normalsize{\textsf{𝐇𝐢𝐦𝐞}}}}$ 𝐎𝐫 ${{\color{72A3BB}\normalsize{\textsf{𝐏𝐮𝐩𝐩𝐲𝐩𝐢𝐥𝐥}}}}$ .
 
 
 ☆ 𝐻𝑒 | 𝑇ℎ𝑒𝑦 | 𝐼𝑡 | 𝑥𝑒𝑛𝑜𝑠
