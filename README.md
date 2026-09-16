@@ -155,7 +155,7 @@
 🍥˖⸂ ‎⟡ ˖ 𓈒꙳🐰𓂃𓈒𓏸 
 
 
-# ◩ 𝐃𝐍𝐈 𝐥𝐢𝐬𝐭 ![278625c877c1f95c2584779fd13680cee6aff8de gifv](https://github.com/user-attachments/assets/f7e4e3a1-1440-4484-bc43-2f2507eb21b6)
+# ◩ 𝐃𝐍𝐈 𝐥𝐢𝐬𝐭. ![278625c877c1f95c2584779fd13680cee6aff8de gifv](https://github.com/user-attachments/assets/f7e4e3a1-1440-4484-bc43-2f2507eb21b6)
 
 
 ♯ 𝐏𝐞𝐝𝐨𝐬 / 𝐙𝐨𝐨𝐬
@@ -177,6 +177,19 @@
 ♯ 𝐒𝐤𝐢𝐧 𝐬𝐭𝐞𝐚𝐥𝐞𝐫𝐬 / 𝐜𝐨𝐩𝐢𝐞𝐫𝐬
 
 ♯ 𝐏𝐞𝐨𝐩𝐥𝐞 𝐰𝐡𝐨 𝐡𝐚𝐯𝐞 𝐚 𝐢𝐬𝐬𝐮𝐞 𝐰𝐢𝐭𝐡 𝐦𝐞 / 𝐦𝐲 𝐟𝐫𝐢𝐞𝐧𝐝𝐬
+
+# 𝐎𝐧 𝐭𝐡𝐢𝐧 𝐢𝐜𝐞. <img width="20" height="20" alt="IMG_2275" src="https://github.com/user-attachments/assets/6b1b5ff7-127f-4e47-91e1-15a7c90b73fc" />
+
+▧ 𝐄𝐱 𝐟𝐫𝐢𝐞𝐧𝐝𝐬
+
+▧ 𝐏𝐫𝐨𝐬𝐡𝐢𝐩𝐩𝐞𝐫𝐬 / 𝐃𝐚𝐫𝐤𝐬𝐡𝐢𝐩𝐩𝐞𝐫𝐬
+
+▧ 𝐫𝐚𝐠𝐞𝐛𝐚𝐢𝐭 𝐚𝐜𝐜𝐨𝐮𝐧𝐭𝐬
+
+▧ 𝐓𝐅𝐂 𝐟𝐚𝐧𝐬
+
+▧ 𝐀𝐝𝐝𝐢𝐧𝐠 𝐦𝐨𝐫𝐞 𝐥𝐚𝐭𝐞𝐫.
+
 
 # 
 
