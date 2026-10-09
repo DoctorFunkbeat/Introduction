@@ -1,7 +1,7 @@
 <img width="689" height="559" alt="Untitled263_20251213192708" src="https://github.com/user-attachments/assets/e0c5f5a5-4a1a-4fa5-a44f-10a64be169d6" />
 
 
-[𝐀𝐥𝐭 𝐈𝐧𝐭𝐫𝐨! (𝐦𝐚𝐝𝐞 𝐛𝐲 𝐦𝐲 𝐚𝐥𝐭𝐞𝐫 𝐋𝐞𝐚𝐝𝐢𝐚 <3)](https://github.com/Leadprincess/Introduction.)
+[𝐀𝐥𝐭 𝐈𝐧𝐭𝐫𝐨! (𝐦𝐚𝐝𝐞 𝐛𝐲 𝐦𝐲 𝐚𝐥𝐭𝐞𝐫 𝐋𝐞𝐚𝐝𝐢𝐚 <3)](https://github.com/Leadprincess/Introduction-for-Funkbeat)
 
 
 ![D6739326-0973-4B3D-B8C8-9B7CA6C47BE3](https://github.com/user-attachments/assets/391bd43c-9b9e-44cf-ab2c-e87a86c1a391)
