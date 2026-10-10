@@ -22,6 +22,9 @@
 <img width="2203" height="1289" alt="IMG_4405" src="https://github.com/user-attachments/assets/708d8b18-0b02-462c-8459-4a9c69175ce9" />
 
 
+<img width="498" height="279" alt="IMG_4017" src="https://github.com/user-attachments/assets/d8d75db7-d3ca-4299-9ccd-b16435f0f879" />
+
+↑ 𝐌𝐞 𝐢𝐧 𝐚 𝐚𝐯𝐞𝐫𝐚𝐠𝐞 𝐜𝐨𝐧𝐯𝐞𝐫𝐬𝐚𝐭𝐢𝐨𝐧 𝐰𝐢𝐭𝐡 𝐦𝐲 𝐜𝐥𝐨𝐬𝐞 𝐟𝐫𝐢𝐞𝐧𝐝𝐬
 
 ★ ☆ ★
 
