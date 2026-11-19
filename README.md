@@ -147,19 +147,19 @@
 <img width="20" height="20" alt="tumblr_lv2uyb9Ejl1r1itgh" src="https://github.com/user-attachments/assets/e3de0e3c-b82e-458a-90f7-866c554f4765" />
 
 
-[𝐈𝐳𝐳𝐲'𝐬 𝐠𝐢𝐭𝐡𝐮𝐛!](https://github.com/sinfulribbons)
+[𝐈𝐳𝐳𝐲'𝐬 𝐠𝐢𝐭𝐡𝐮𝐛! :3 ](https://github.com/sinfulribbons)
 
 
 -✧ 𝐋𝐨𝐮. 𝐇𝐢𝐢𝐲𝐚 𝐋𝐨𝐮!! 𝐲𝐨𝐮'𝐫𝐞 𝐚𝐧 𝐚𝐦𝐚𝐳𝐢𝐧𝐠 𝐛𝐫𝐨𝐭𝐡𝐞𝐫 𝐚𝐧𝐝 𝐟𝐫𝐢𝐞𝐧𝐝! 𝐢'𝐦 𝐬𝐨 𝐠𝐥𝐚𝐝 𝐲𝐨𝐮'𝐫𝐞 𝐢𝐧 𝐦𝐲 𝐥𝐢𝐟𝐞 𝐛𝐞𝐜𝐚𝐮𝐬𝐞 𝐢 𝐥𝐨𝐯𝐞 𝐥𝐚𝐮𝐠𝐡𝐢𝐧𝐠 𝐚𝐥𝐨𝐧𝐠𝐬𝐢𝐝𝐞 𝐲𝐨𝐮! 𝐢 𝐡𝐨𝐩𝐞 𝐲𝐨𝐮 𝐤𝐧𝐨𝐰 𝐲𝐨𝐮 𝐦𝐚𝐭𝐭𝐞𝐫 𝐚𝐥𝐨𝐭 𝐭𝐨 𝐦𝐞! 𝐛𝐨𝐭𝐡 𝐚𝐬 𝐚 𝐛𝐫𝐨𝐭𝐡𝐞𝐫 𝐚𝐧𝐝 𝐟𝐫𝐢𝐞𝐧𝐝! ^^ 𝐬𝐭𝐚𝐲 𝐬𝐚𝐟𝐞 𝐚𝐧𝐝 𝐧𝐞𝐯𝐞𝐫 𝐥𝐞𝐭 𝐡𝐚𝐭𝐞 𝐭𝐚𝐤𝐞 𝐲𝐨𝐮 𝐝𝐨𝐰𝐧! 𝐢'𝐥𝐥 𝐚𝐥𝐰𝐚𝐲𝐬 𝐛𝐞 𝐡𝐞𝐫𝐞 𝐟𝐨𝐫 𝐲𝐨𝐮! <img width="20" height="20" alt="53dd8866" src="https://github.com/user-attachments/assets/58e81f9e-3fd4-4880-8388-df5eb0918295" />
 
 
-[𝐋𝐨𝐮'𝐬 𝐠𝐢𝐭𝐡𝐮𝐛!](https://github.com/harmonizingverses)
+[𝐋𝐨𝐮'𝐬 𝐠𝐢𝐭𝐡𝐮𝐛](https://github.com/harmonizingverses)
 
 -✧ 𝐂𝐡𝐞𝐝𝐝𝐚𝐫. 𝐇𝐞𝐥𝐥𝐨!! 𝐲𝐨𝐮'𝐫𝐞 𝐚𝐧 𝐚𝐦𝐚𝐳𝐢𝐧𝐠 𝐚𝐦𝐝 𝐜𝐚𝐫𝐢𝐧𝐠 𝐟𝐫𝐢𝐞𝐧𝐝! 𝐢'𝐦 𝐠𝐥𝐚𝐝 𝐰𝐞 𝐭𝐚𝐥𝐤 𝐧𝐨𝐰𝐚𝐝𝐚𝐲𝐬 𝐚𝐧𝐝 𝐬𝐭𝐚𝐲 𝐭𝐨𝐠𝐞𝐭𝐡𝐞𝐫 𝐚𝐥𝐨𝐧𝐠𝐬𝐢𝐝𝐞 𝐋𝐨𝐮 𝐚𝐧𝐝 𝐊𝐫𝐢𝐬! 𝐲𝐨𝐮 𝐚𝐥𝐥 𝐦𝐞𝐚𝐧 𝐚𝐥𝐨𝐭 𝐭𝐨 𝐦𝐞! 𝐭𝐡𝐚𝐧𝐤 𝐲𝐨𝐮 𝐟𝐨𝐫 𝐧𝐞𝐯𝐞𝐫 𝐣𝐮𝐝𝐠𝐢𝐧𝐠 𝐦𝐞! 𝐬𝐭𝐚𝐲 𝐬𝐚𝐟𝐞 𝐚𝐧𝐝 𝐢'𝐥𝐥 𝐚𝐥𝐰𝐚𝐲𝐬 𝐛𝐞 𝐡𝐞𝐫𝐞 𝐟𝐨𝐫 𝐲𝐨𝐮!!  <img width="20" height="20" alt="ywS1Bq1" src="https://github.com/user-attachments/assets/c3662fa1-762b-4755-915f-a000813b34bc" />
 
-[𝐂𝐡𝐞𝐝𝐝𝐚𝐫'𝐬 𝐠𝐢𝐭𝐡𝐮𝐛! :3](https://github.com/CheddarChez)
+[𝐂𝐡𝐞𝐝𝐝𝐚𝐫'𝐬 𝐠𝐢𝐭𝐡𝐮𝐛](https://github.com/CheddarChez)
 
--✧ 𝐊𝐫𝐢𝐬. 𝐇𝐢𝐲𝐚! 𝐢 𝐟𝐢𝐧𝐝 𝐲𝐨𝐮 𝐚 𝐫𝐞𝐚𝐥𝐥𝐲 𝐜𝐨𝐨𝐥 𝐚𝐧𝐝 𝐟𝐮𝐧𝐧𝐲 𝐩𝐞𝐫𝐬𝐨𝐧! 𝐲𝐨𝐮 𝐝𝐞𝐟𝐢𝐧𝐞𝐭𝐞𝐥𝐲 𝐦𝐚𝐤𝐞 𝐨𝐮𝐫 𝐠𝐫𝐨𝐮𝐩 𝐰𝐚𝐲 𝐛𝐞𝐭𝐭𝐞𝐫!! 𝐢 𝐡𝐨𝐩𝐞 𝐲𝐨𝐮 𝐤𝐧𝐨𝐰 𝐲𝐨𝐮 𝐚𝐫𝐞 𝐚 𝐢𝐦𝐩𝐨𝐫𝐭𝐚𝐧𝐭 𝐟𝐫𝐢𝐞𝐧𝐝 𝐭𝐨 𝐦𝐞! 𝐞𝐯𝐞𝐧 𝐢𝐟 𝐰𝐞 𝐝𝐨𝐧'𝐭 𝐬𝐩𝐞𝐚𝐤 𝐚𝐥𝐨𝐭٫ 𝐢'𝐥𝐥 𝐚𝐥𝐰𝐚𝐲𝐬 𝐛𝐞 𝐡𝐞𝐫𝐞 𝐟𝐨𝐫 𝐲𝐨𝐮!<img width="20" height="20" alt="IMG_4014" src="https://github.com/user-attachments/assets/dcd0dcd0-59ce-465f-a00a-29babb8c489d" />
+-✧ 𝐊𝐫𝐢𝐬. 𝐇𝐢𝐲𝐚! 𝐢 𝐟𝐢𝐧𝐝 𝐲𝐨𝐮 𝐚 𝐫𝐞𝐚𝐥𝐥𝐲 𝐜𝐨𝐨𝐥 𝐚𝐧𝐝 𝐟𝐮𝐧𝐧𝐲 𝐩𝐞𝐫𝐬𝐨𝐧! 𝐲𝐨𝐮 𝐝𝐞𝐟𝐢𝐧𝐞𝐭𝐞𝐥𝐲 𝐦𝐚𝐤𝐞 𝐨𝐮𝐫 𝐠𝐫𝐨𝐮𝐩 𝐰𝐚𝐲 𝐛𝐞𝐭𝐭𝐞𝐫!! 𝐢 𝐡𝐨𝐩𝐞 𝐲𝐨𝐮 𝐤𝐧𝐨𝐰 𝐲𝐨𝐮 𝐚𝐫𝐞 𝐚 𝐢𝐦𝐩𝐨𝐫𝐭𝐚𝐧𝐭 𝐟𝐫𝐢𝐞𝐧𝐝 𝐭𝐨 𝐦𝐞! 𝐞𝐯𝐞𝐧 𝐢𝐟 𝐰𝐞 𝐝𝐨𝐧'𝐭 𝐬𝐩𝐞𝐚𝐤 𝐚𝐥𝐨𝐭٫ 𝐢'𝐥𝐥 𝐚𝐥𝐰𝐚𝐲𝐬 𝐛𝐞 𝐡𝐞𝐫𝐞 𝐟𝐨𝐫 𝐲𝐨𝐮! *(only if you did the same in return...*)<img width="20" height="20" alt="IMG_4014" src="https://github.com/user-attachments/assets/dcd0dcd0-59ce-465f-a00a-29babb8c489d" />
 
 
 [𝐊𝐫𝐢𝐬'𝐬 𝐠𝐢𝐭𝐡𝐮𝐛](https://github.com/falcon-ft)
